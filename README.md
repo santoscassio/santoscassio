@@ -2,6 +2,8 @@
 
 Software Engineer at [**CARSYNC GmbH**](https://www.carsync.de).
 
+My personal account is [**@cassiosantos**](https://github.com/cassiosantos).
+
 ### Find me elsewhere 🌎
 
 [🐦 Twitter](https://twitter.com/cassiosantos) <br />
